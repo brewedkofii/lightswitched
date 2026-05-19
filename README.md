@@ -19,6 +19,8 @@ look down ! ⤵︎⤵︎
 
 may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏<,,)
 
+i cuddle random ppl when i see they have c + h in their name , when i want 2 tho
+
 . .
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
