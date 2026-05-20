@@ -3,6 +3,9 @@
  ⠀This is 4 ponytown !
  
  . . .
+
+iwc ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
+
 look down ! ⤵︎⤵︎
 
 ⤵︎
