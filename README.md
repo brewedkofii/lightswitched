@@ -34,6 +34,9 @@ i cuddle random ppl when i see they have c + h in their name , when i want 2 tho
 
 usually listenin to music,, ˖ ݁♬⋆.˚𝄞 . . ( maybe will put LTM in my name )
 
+https://github.com/Chicken/soundcloud.com-github-profile.git
+
+
 barely a talker , but ! ; if you wanna talk 2 me i wont mind !!
 
 my dni is the basics yeah
