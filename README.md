@@ -6,6 +6,8 @@
 
 iwc ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
 
+my cosplays of roblox stuff is mostly not related 2 4saken ; not playing it anymore honestly .
+
 look down ! ⤵︎⤵︎
 
 ⤵︎
