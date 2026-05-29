@@ -9,10 +9,6 @@ iwc ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
 
 ⟡
 
-࿐ ࿔*:･ﾟ ִֶָ.  ..𓂃  " 𝚒𝚖 𝚌𝚘𝚕𝚍 𝚊𝚗𝚍 𝚜𝚑𝚒𝚟𝚎𝚛𝚒𝚗𝚐 𝚒𝚗 𝚝𝚑𝚎 𝚗𝚒𝚐𝚑𝚝 , 𝚙𝚕𝚎𝚊𝚜𝚎 𝚏𝚘𝚛𝚐𝚒𝚟𝚎 𝚖𝚎 . "  .. 𓂃 💨
-
-⟡
-
 may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏<,,)
 
 ⟡
