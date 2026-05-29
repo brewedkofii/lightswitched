@@ -9,24 +9,12 @@ iwc ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
 
 ⟡
 
-may not respond ; the reason why is bc im probably doing smth so sorry!! (,,>﹏<,,)
+may not respond , use whispers 2 int . cuddle and hug FREELY !!! idm .
 
 ⟡
 
-i cuddle random ppl when i see they have c + h in their name , when i want 2 tho ; might cuddle bad ppl , if so .. sorry !! 3: i dont rly know :<
+introvert ; dummy with friends .
 
 ⟡
 
-usually listenin to music ( maybe will put LTM in my name )
-
-⟡
-
-barely a talker , but ! ; if you wanna talk 2 me i wont mind !!
-
-⟡
-
-my dni is the basics ok .
-
-⟡
-
-w2i / boop2int ; DNCOPY unless you ask + unless friends , RPDNIUD + unless with friends / close friend ; DNCOVER unless cuddles + unless friends !! ; i like affection from ppl i think r cool / friends / my close friend ,, ((example ; nuzzling , gift giving/item giving ,,)) ; dont kiss me unless friends / close friend + giving a compliment to my pony ,, 𝜗ৎ
+i dont like kisses except from friends or complementing , pls dont cover me unless i want to be covered . no copying ok , yes .
