@@ -5,6 +5,10 @@
 
 ⟡
 
+: check strawpage for more info , ok
+
+⟡
+
 iwec ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
 
 ⟡
