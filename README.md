@@ -5,7 +5,7 @@
 
 ⟡
 
-iwc ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
+iwec ; sensitive to harsh words / talking rudely/harshly 2 me : sorry .
 
 ⟡
 
