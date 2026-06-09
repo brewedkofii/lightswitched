@@ -22,3 +22,7 @@ introvert ; dummy with friends .
 ⟡
 
 i dont like kisses except from friends or complementing , pls dont cover me unless i want to be covered . no copying ok , yes .
+
+⟡
+
+i follow my pals / or cool skins idk
