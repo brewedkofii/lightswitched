@@ -5,7 +5,7 @@
 
 ⟡
 
-: check strawpage for more info , ok
+: STRAW IS CURRECTLY BEING REMADE !! < :o , check out my ata instead < :3
 
 ⟡
 
