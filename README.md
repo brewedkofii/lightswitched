@@ -26,3 +26,7 @@ i dont like kisses except from friends or complementing , pls dont cover me unle
 ⟡
 
 i follow my pals / or cool skins idk
+
+⟡
+
+dont copy my skins , inspo pls do ask first < :3
