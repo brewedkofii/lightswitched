@@ -5,8 +5,7 @@
 
 ⟡
 
-: STRAW IS CURRECTLY BEING REMADE !! < :o , check out my ata instead < :3
-
+: check out my straw or ata !!
 ⟡
 
 iwec ; extremely sensitive .
