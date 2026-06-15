@@ -43,6 +43,3 @@ bassie
 
 dandy
 
-sayori
-
-
