@@ -5,7 +5,7 @@
 
 ⟡
 
-: check out my straw or ata !!
+: check out my straw or ata !! straw is also abit broken so dont mind that haha . . uhhh
 
 ⟡
 
