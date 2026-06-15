@@ -30,3 +30,19 @@ i follow my pals / or cool skins idk
 ⟡
 
 dont copy my skins , inspo pls do ask first < :3
+
+⟡
+
+my kins !!!
+
+caine
+
+pink diamond
+
+bassie
+
+dandy
+
+sayori
+
+
